@@ -3,3 +3,7 @@
 ## About me
 soy una programadora profesora de inicial
 
+## Contact me
+redes disponibles : Facebook, Instagram, Tiktok
+
+
