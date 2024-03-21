@@ -6,4 +6,9 @@ soy una programadora profesora de inicial
 ## Contact me
 redes disponibles : Facebook, Instagram, Tiktok
 
+## hobbies
+
+- comer
+- dormir
+- leer
 
