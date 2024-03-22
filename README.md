@@ -6,4 +6,8 @@ soy una programadora profesora de inicial
 ## Contact me
 redes disponibles : Facebook, Instagram, Tiktok
 
+## Languages
+- english
+- spanish
+  
 
